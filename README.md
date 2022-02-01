@@ -1,3 +1,3 @@
-# Vex-Block-Support-
+# Alistar Studios Support
 
-Please Email: eisensluff@gmail.com for Support for an Alistar Studios game.
+Please Email: alistarstudiosmobile@gmail.com for Support for an Alistar Studios game.
